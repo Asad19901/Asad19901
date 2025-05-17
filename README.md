@@ -40,4 +40,4 @@ Here are some things I'm currently working on or recently completed:
 
 ---
 
-Thanks forrr visiting! 🚀 
+Thanks for visiting! 🚀 
